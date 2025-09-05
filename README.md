@@ -1,0 +1,1 @@
+practicas del primer semestre de la materias de fundamentos programacion utilizando el ibe pseint lo cual corresponde alos trabojos del primer parcial <img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/c82178c5-c25f-41ec-bbdc-830f5a12e0fd" />
